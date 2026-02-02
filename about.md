@@ -12,4 +12,4 @@ I am now a MS student in NCSU focusing on Power Electronics and Learning ML
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[xzou9@ncsu.edu](mailto:email@domain.com)
