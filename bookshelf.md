@@ -14,4 +14,4 @@ This page lists the books I have read and, occasionally, some reflections on wha
 
 ## 2025
 * **这世界残酷也温柔** - *孙宇晨*
-    * [Finished] 十年前的作品，对我的震撼出乎意料的大，我想要读更多这个类型的书。
+    * [Finished] 十年前的作品，对我的震撼出乎意料的大，坚定了我不买房，买便宜车（因为车是负资产），做世界公民的想法，我需要读更多这个类型的书。
